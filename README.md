@@ -15,7 +15,7 @@ Also feel free to come with problems and questions about your code, my code, or 
 Want to bring beer?
 ------------------
 
-Of course you do.  Like I said, I'll have a few on hand, normally Squatters.
+Of course you do.  Like I said though, I'll have a few on hand, normally Squatters.
 
 
 Organizer
